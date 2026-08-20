@@ -1,9 +1,30 @@
- ### HIHI HELLOO
+<p align="center">
+<img width="600" height="5" alt="ed5e815d" src="https://github.com/user-attachments/assets/0d01a077-601b-43b3-926d-3d595700b808" />
+<p align="center">
+ <sup><sub> 
+lia !! ︵‿ 15 yrs. old ︵‿ esfp
+  <img width="20" height="20" alt="87f0c952" src="https://github.com/user-attachments/assets/724726e8-9ef3-46d5-bc56-2c70c79f5ab2" />
 
- ### hi im 15 hmm im a girl hmmm any ships can int idm hmm PLS C+H i loveit heh
-
- #### basic dni ; 19+ , -13 , helluva boss/hazbin hotel fans/supporters !! forsaken fans iwc pls
+</sub></sup>
  
- ##### i dont know how to do this so go check otmy straw and stuff heh thaks ily ily ily
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=xoxo1ia&label=󠀠⠀ꜱʜᴏᴡꜱᴛᴏᴘᴘᴇʀꜱ⠀%20&color=B02A2A&social"alt="xoxo1ia" 
+  / >
+ <div align="center">  
 
- #### ATTACK ME ON ARTFIGHT ; xoxo1ia
+  <img width="100" height="100" alt="unnamed_b7a343bb-30e5-4c7d-83a5-2d08bb493e15_1000x png" src="https://github.com/user-attachments/assets/7a9619f3-7335-4c79-84c5-6ee481cf98bd" />
+
+<p align="center">
+  <sup><sub> "Ladies and Gentlemen! Boys and girls! Step right up! Get ready for entertainment like you've never seen before!"
+</sub></sup>
+
+ <div align="center"> 
+<img width="736" height="414" alt="_ (26)" src="https://github.com/user-attachments/assets/10f8debc-cdcb-42a2-b20e-5634490f1cd7" />
+
+ </sub></sup>
+ <div align="center"> 
+  
+  [ata](https://xoxo1ia.atabook.org/)ㅤㅤ ♡⁠ㅤㅤ [straw](https://xoxoliacuddys.straw.page/)ㅤㅤ ♡⁠ㅤㅤ [tiktok](https://www.tiktok.com/@lia.nammr)
+
+<p align="center">
+<img width="600" height="5" alt="ed5e815d" src="https://github.com/user-attachments/assets/0d01a077-601b-43b3-926d-3d595700b808" />
+ </p>
