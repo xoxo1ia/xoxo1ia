@@ -18,7 +18,8 @@ lia !! ︵‿ 15 yrs. old ︵‿ esfp
 </sub></sup>
 
  <div align="center"> 
-<img width="736" height="414" alt="_ (26)" src="https://github.com/user-attachments/assets/10f8debc-cdcb-42a2-b20e-5634490f1cd7" />
+<img width="736" height="414" alt="Untitled320_20260819222923" src="https://github.com/user-attachments/assets/892edccc-de54-4e95-8038-2657c1477e1c" />
+
 
  </sub></sup>
  <div align="center"> 
