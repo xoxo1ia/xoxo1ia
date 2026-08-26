@@ -7,14 +7,14 @@ lia !! ︵‿ 15 yrs. old ︵‿ esfp
 
 </sub></sup>
  
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=xoxo1ia&label=󠀠⠀ꜱʜᴏᴡꜱᴛᴏᴘᴘᴇʀꜱ⠀%20&color=B02A2A&social"alt="xoxo1ia" 
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=xoxo1ia&label=󠀠⠀ᵛⁱᶜᵗⁱᵐˢ⠀%20&color=B02A2A&social"alt="xoxo1ia" 
   / >
  <div align="center">  
 
   <img width="100" height="100" alt="unnamed_b7a343bb-30e5-4c7d-83a5-2d08bb493e15_1000x png" src="https://github.com/user-attachments/assets/7a9619f3-7335-4c79-84c5-6ee481cf98bd" />
 
 <p align="center">
-  <sup><sub> "Ladies and Gentlemen! Boys and girls! Step right up! Get ready for entertainment like you've never seen before!"
+  <sup><sub> "Go to sleep..!"
 </sub></sup>
 
  <div align="center"> 
