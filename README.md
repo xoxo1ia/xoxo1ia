@@ -27,7 +27,7 @@ lia !! ︵‿ 15 yrs. old ︵‿ esfp
  </sub></sup>
  <div align="center"> 
   
-  [ata](https://xoxo1ia.atabook.org/)ㅤㅤ ♡⁠ㅤㅤ [straw]([https://xoxoliacuddys.straw.page/](https://windowsben.straw.page/))ㅤㅤ ♡⁠ㅤㅤ [tiktok](https://www.tiktok.com/@lia.nammr)
+  [ata](https://xoxo1ia.atabook.org/)ㅤㅤ ♡⁠ㅤㅤ [straw](https://xoxoliacuddys.straw.page/](https://windowsben.straw.page/))ㅤㅤ ♡⁠ㅤㅤ [tiktok](https://www.tiktok.com/@lia.nammr)
 
 <p align="center">
   <img width="20" height="20" alt="tumblr_b64cc9bbca9e4b1a6ac232de2912353a_62dbd4f9_75" src="https://github.com/user-attachments/assets/b4399686-d9e1-4d58-b941-596f1e5b08c6" />
