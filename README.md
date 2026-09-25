@@ -1,5 +1,7 @@
 <p align="center">
-<img width="600" height="5" alt="ed5e815d" src="https://github.com/user-attachments/assets/0d01a077-601b-43b3-926d-3d595700b808" />
+<img width="550" height="5" alt="3ca2b736" src="https://github.com/user-attachments/assets/d173babd-9664-4dbc-a553-0dfe79135b95" />
+
+
 <p align="center">
  <sup><sub> 
 lia !! ︵‿ 15 yrs. old ︵‿ esfp
@@ -8,33 +10,38 @@ lia !! ︵‿ 15 yrs. old ︵‿ esfp
 
 </sub></sup>
  
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=xoxo1ia&label=󠀠⠀ᵛⁱᶜᵗⁱᵐˢ⠀%20&color=B02A2A&social"alt="xoxo1ia" 
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=xoxo1ia&label=󠀠⠀ᵥᵢᵣᵤₛₑₛ⠀%20&color=00D100&social"alt="xoxo1ia" 
   / >
  <div align="center">  
 
- <img width="100" height="100" alt="Screenshot 2026-08-26 at 4 06 01 PM" src="https://github.com/user-attachments/assets/ea40c000-43fe-4d5e-8abb-fc3df9eaaeb0" />
+ <img width="100" height="100" alt="bendrownedicon" src="https://github.com/user-attachments/assets/3b57046d-a6ca-4469-aca3-d26af876e608" />
+
 
 
 <p align="center">
-  <sup><sub> "Go to sleep..!"
+  <sup><sub> "You shouldn't have done that."
 </sub></sup>
 
  <div align="center"> 
-<img width="1800" height="700" alt="jeffdakilla(2)" src="https://github.com/user-attachments/assets/7ccd7d3c-ae8c-4a15-b990-a520c7760cbb" />
+<img width="1800" height="700" alt="benbanner" src="https://github.com/user-attachments/assets/fc14e3ee-8b50-43ee-aef1-053d65640ec7" />
+
 
 
 
  </sub></sup>
  <div align="center"> 
   
-  [ata](https://xoxo1ia.atabook.org/)ㅤㅤ ♡⁠ㅤㅤ [straw](https://windowsben.straw.page/)ㅤㅤ ♡⁠ㅤㅤ [tiktok](https://www.tiktok.com/@lia.nammr)
+  [ata](https://xoxo1ia.atabook.org/)ㅤㅤ <img width="20" height="20" alt="vcwTofW" src="https://github.com/user-attachments/assets/4da4f5de-5d75-4db2-a592-2c33f610c4ef" />
+ㅤㅤ [straw](https://windowsben.straw.page/)ㅤㅤ <img width="24" height="24" alt="viruspixel" src="https://github.com/user-attachments/assets/57f228be-eaa5-43b8-af3b-2d7ee03dece2" />
+⁠ㅤㅤ [tiktok](https://www.tiktok.com/@lia.nammr)
 
 <p align="center">
-  <img width="20" height="20" alt="tumblr_b64cc9bbca9e4b1a6ac232de2912353a_62dbd4f9_75" src="https://github.com/user-attachments/assets/b4399686-d9e1-4d58-b941-596f1e5b08c6" />
+  <img width="150" height="20" alt="virusblinkie" src="https://github.com/user-attachments/assets/166db14d-7470-437f-a4cf-1ae8043b9974" />
+
+
  
 <p align="center">
-<img width="600" height="5" alt="ed5e815d" src="https://github.com/user-attachments/assets/0d01a077-601b-43b3-926d-3d595700b808" />
-
+<img width="550" height="5" alt="3ca2b736" src="https://github.com/user-attachments/assets/d173babd-9664-4dbc-a553-0dfe79135b95" />
  
 
  </p>
