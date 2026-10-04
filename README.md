@@ -10,9 +10,10 @@ lia !! ︵‿ 15 yrs. old ︵‿ esfp
 
 
 </sub></sup>
+   . <p align="center">
+   ![Github Views](https://views.igorkowalczyk.dev/api/badge/xoxo1ia?label=ᵥᵢᵣᵤₛₑₛ&labelColor=228B22&color=E6FFE6)
  
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=xoxo1ia&label=󠀠⠀ᵥᵢᵣᵤₛₑₛ⠀%20&color=00D100&social"alt="xoxo1ia" 
-  / >
+
  <div align="center">  
 
  <img width="100" height="100" alt="bendrownedicon" src="https://github.com/user-attachments/assets/3b57046d-a6ca-4469-aca3-d26af876e608" />
