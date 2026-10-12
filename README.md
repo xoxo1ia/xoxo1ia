@@ -4,14 +4,14 @@
 
 <p align="center">
  <sup><sub> 
-lia or ben !! ︵‿ 15 yrs. old ︵‿ esfp
+lia / ben / helen !! ︵‿ 15 yrs. old ︵‿ esfp
   <img width="20" height="20" alt="computerpixel" src="https://github.com/user-attachments/assets/503b68b2-d19f-4553-a7bb-39dd7195e4c9" />
 
 
 
 </sub></sup>
    . <p align="center">
-   ![Github Views](https://views.igorkowalczyk.dev/api/badge/xoxo1ia?label=ᵥᵢᵣᵤₛₑₛ&labelColor=228B22&color=E6FFE6)
+   ![Github Views](https://views.igorkowalczyk.dev/api/badge/xoxo1ia?label=ₐᵣₜwₒᵣₖₛ&labelColor=228B22&color=E6FFE6)
  
 
  <div align="center">  
@@ -21,11 +21,11 @@ lia or ben !! ︵‿ 15 yrs. old ︵‿ esfp
 
 
 <p align="center">
-  <sup><sub> "You shouldn't have done that."
+  <sup><sub> "Don't be excited about tomorrow, because there will be no tomorrow."
 </sub></sup>
 
  <div align="center"> 
-<img width="1800" height="700" alt="benbanner" src="https://github.com/user-attachments/assets/fc14e3ee-8b50-43ee-aef1-053d65640ec7" />
+<img width="1700" height="600" alt="Untitled327_20261012150633" src="https://github.com/user-attachments/assets/646bd3b9-7d93-44d4-a4ee-fa21fc799c40" />
 
 
 
