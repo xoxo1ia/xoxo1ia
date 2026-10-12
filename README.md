@@ -5,8 +5,7 @@
 <p align="center">
  <sup><sub> 
 lia / ben / helen !! ︵‿ 15 yrs. old ︵‿ esfp
-  <img width="20" height="20" alt="computerpixel" src="https://github.com/user-attachments/assets/503b68b2-d19f-4553-a7bb-39dd7195e4c9" />
-
+  🎨
 
 
 </sub></sup>
