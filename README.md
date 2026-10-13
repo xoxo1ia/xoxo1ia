@@ -1,5 +1,6 @@
 <p align="center">
-<img width="550" height="5" alt="3ca2b736" src="https://github.com/user-attachments/assets/d173babd-9664-4dbc-a553-0dfe79135b95" />
+<img width="550" height="7" alt="glitterblue" src="https://github.com/user-attachments/assets/c2bbf6e4-cc92-44e9-946a-d08c9b1cd2b4" />
+
 
 
 <p align="center">
@@ -10,12 +11,13 @@ lia / ben / helen !! ︵‿ 15 yrs. old ︵‿ esfp
 
 </sub></sup>
    . <p align="center">
-   ![Github Views](https://views.igorkowalczyk.dev/api/badge/xoxo1ia?label=ₐᵣₜwₒᵣₖₛ&labelColor=228B22&color=E6FFE6)
+   ![Github Views](https://views.igorkowalczyk.dev/api/badge/xoxo1ia?label=ₐᵣₜwₒᵣₖₛ&labelColor=002147&color=FFFFFF)
  
 
  <div align="center">  
 
- <img width="100" height="100" alt="bendrownedicon" src="https://github.com/user-attachments/assets/3b57046d-a6ca-4469-aca3-d26af876e608" />
+ <img width="100" height="100" alt="pjsk_helen_otis-removebg-preview" src="https://github.com/user-attachments/assets/6887b962-1974-446e-a47e-d5db5c6703b6" />
+
 
 
 
@@ -24,7 +26,7 @@ lia / ben / helen !! ︵‿ 15 yrs. old ︵‿ esfp
 </sub></sup>
 
  <div align="center"> 
-<img width="1700" height="600" alt="Untitled327_20261012150633" src="https://github.com/user-attachments/assets/646bd3b9-7d93-44d4-a4ee-fa21fc799c40" />
+<img width="2000" height="600" alt="Untitled327_20261012150633" src="https://github.com/user-attachments/assets/646bd3b9-7d93-44d4-a4ee-fa21fc799c40" />
 
 
 
@@ -32,17 +34,19 @@ lia / ben / helen !! ︵‿ 15 yrs. old ︵‿ esfp
  </sub></sup>
  <div align="center"> 
   
-  [ata](https://xoxo1ia.atabook.org/)ㅤㅤ <img width="20" height="20" alt="vcwTofW" src="https://github.com/user-attachments/assets/4da4f5de-5d75-4db2-a592-2c33f610c4ef" />
-ㅤㅤ [straw](https://windowsben.straw.page/)ㅤㅤ <img width="24" height="24" alt="viruspixel" src="https://github.com/user-attachments/assets/57f228be-eaa5-43b8-af3b-2d7ee03dece2" />
-⁠ㅤㅤ [tiktok](https://www.tiktok.com/@lia.nammr)
+   [ata](https://xoxo1ia.atabook.org/) <img width="20" height="20" alt="38243292" src="https://github.com/user-attachments/assets/c8faef31-c31d-4ac9-9825-35d1d396e5fe" /> [straw](https://windowsben.straw.page/)   <img width="20" height="20" alt="6e1c6313" src="https://github.com/user-attachments/assets/c706c4c8-0a7c-4a8b-bc99-6244114b12c6" />  [tiktok](https://www.tiktok.com/@lia.nammr)   <img width="20" height="20" alt="1aa0897f" src="https://github.com/user-attachments/assets/3dbfd277-b9a9-4896-8792-02274ec57e6d" />
+
 
 <p align="center">
-  <img width="150" height="20" alt="virusblinkie" src="https://github.com/user-attachments/assets/166db14d-7470-437f-a4cf-1ae8043b9974" />
+ <img width="150" height="20" alt="artist" src="https://github.com/user-attachments/assets/d964de5c-5ad1-49e7-a887-1beed236bf66" />
+
 
 
  
 <p align="center">
-<img width="550" height="5" alt="3ca2b736" src="https://github.com/user-attachments/assets/d173babd-9664-4dbc-a553-0dfe79135b95" />
+<img width="550" height="20" alt="checkers" src="https://github.com/user-attachments/assets/d36cba12-2c60-496a-bff0-975cd248074e" />
+
+
  
 
  </p>
