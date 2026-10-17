@@ -22,7 +22,7 @@ lia / ben / helen !! ︵‿ 15 yrs. old ︵‿ infp
 
 
 <p align="center">
-  <sup><sub> "Don't be excited about tomorrow, because there will be no tomorrow."
+  <sup><sub> "Don't be excited about tomorrow, because there will be no tomorrow. :) "
 </sub></sup>
 
  <div align="center"> 
