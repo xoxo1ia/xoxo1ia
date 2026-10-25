@@ -34,7 +34,7 @@ helen / lia ︵‿ 15 yrs. old ︵‿ infp
  </sub></sup>
  <div align="center"> 
   
-   [ata](https://xoxo1ia.atabook.org/) <img width="20" height="20" alt="38243292" src="https://github.com/user-attachments/assets/c8faef31-c31d-4ac9-9825-35d1d396e5fe" /> [straw](https://windowsben.straw.page/)   <img width="20" height="20" alt="6e1c6313" src="https://github.com/user-attachments/assets/c706c4c8-0a7c-4a8b-bc99-6244114b12c6" />  [tiktok](https://www.tiktok.com/@lia.nammr)   <img width="20" height="20" alt="1aa0897f" src="https://github.com/user-attachments/assets/3dbfd277-b9a9-4896-8792-02274ec57e6d" />
+   [ata](https://xoxo1ia.atabook.org/) <img width="20" height="20" alt="38243292" src="https://github.com/user-attachments/assets/c8faef31-c31d-4ac9-9825-35d1d396e5fe" /> [carrd.co](https://blxxdyhelen.carrd.co/)   <img width="20" height="20" alt="6e1c6313" src="https://github.com/user-attachments/assets/c706c4c8-0a7c-4a8b-bc99-6244114b12c6" />  [tiktok](https://www.tiktok.com/@lia.nammr)   <img width="20" height="20" alt="1aa0897f" src="https://github.com/user-attachments/assets/3dbfd277-b9a9-4896-8792-02274ec57e6d" />
 
 
 <p align="center">
