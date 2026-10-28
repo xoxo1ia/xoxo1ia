@@ -11,7 +11,7 @@ helen / lia ︵‿ 15 yrs. old ︵‿ infp
 
 </sub></sup>
    . <p align="center">
-   ![Github Views](https://views.igorkowalczyk.dev/api/badge/xoxo1ia?label=ₐᵣₜwₒᵣₖₛ&labelColor=002147&color=FFFFFF)
+   ![Github Views](https://views.igorkowalczyk.dev/api/badge/xoxo1ia?label=яσѕєѕ&labelColor=002147&color=FFFFFF)
  
 
  <div align="center">  
