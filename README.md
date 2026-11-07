@@ -29,7 +29,7 @@ helen / lia ︵‿ 15 yrs. old ︵‿ infp
  </sub></sup>
  <div align="center"> 
   
-   [ata](https://xoxo1ia.atabook.org/) 🎨 [carrd](https://blxxdyhelen.carrd.co/)  🌀  [tiktok](https://www.tiktok.com/@lia.nammr)   <img width="20" height="20" alt="1aa0897f" src="https://github.com/user-attachments/assets/3dbfd277-b9a9-4896-8792-02274ec57e6d" />
+   [ata](https://xoxo1ia.atabook.org/) 🎨 [carrd](https://blxxdyhelen.carrd.co/)  🌀  [tiktok](https://www.tiktok.com/@lia.nammr)  
 
 
 <p align="center">
