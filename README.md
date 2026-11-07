@@ -25,11 +25,6 @@ helen / lia ︵‿ 15 yrs. old ︵‿ infp
   <sup><sub> "Don't be excited about tomorrow, because there will be no tomorrow. :) "
 </sub></sup>
 
- <div align="center"> 
-<img width="2000" height="600" alt="Untitled327_20261012150633" src="https://github.com/user-attachments/assets/646bd3b9-7d93-44d4-a4ee-fa21fc799c40" />
-
-
-
 
  </sub></sup>
  <div align="center"> 
