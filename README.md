@@ -5,7 +5,7 @@
 
 <p align="center">
  <sup><sub> 
-helen / lia ︵‿ 15 yrs. old ︵‿ infp
+helen / maddox ︵‿ 15 yrs. old ︵‿ infp
   🎨
 
 
