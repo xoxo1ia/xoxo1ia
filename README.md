@@ -29,7 +29,7 @@ helen / maddox ︵‿ 15 yrs. old ︵‿ infp
  </sub></sup>
  <div align="center"> 
   
-   [ata](https://xoxo1ia.atabook.org/) 🎨 [carrd](https://blxxdyhelen.carrd.co/)  🌀  [tiktok](https://www.tiktok.com/@lia.nammr)  
+   [ata](https://xoxo1ia.atabook.org/) 🎨 [carrd](https://knockknxck.carrd.co/)  🌀  [tiktok](https://www.tiktok.com/@lia.nammr)  
 
 
 <p align="center">
