@@ -6,30 +6,35 @@
 <p align="center">
  <sup><sub> 
 helen / maddox ︵‿ 15 yrs. old ︵‿ infp
-  🎨
+  🚪
 
 
 </sub></sup>
    . <p align="center">
-   ![Github Views](https://views.igorkowalczyk.dev/api/badge/xoxo1ia?label=яσѕєѕ&labelColor=002147&color=FFFFFF)
+   ![Github Views](https://views.igorkowalczyk.dev/api/badge/xoxo1ia?label=ᵈᵒᵒʳˢ-ᵇʳᵒᵏᵉⁿ&labelColor=000&color=FFFFFF)
  
 
  <div align="center">  
 
- <img width="100" height="100" alt="pjsk_helen_otis-removebg-preview" src="https://github.com/user-attachments/assets/6887b962-1974-446e-a47e-d5db5c6703b6" />
+ <img width="100" height="100" alt="knockknockknock" src="https://github.com/user-attachments/assets/356b2fea-9c29-42d2-ac31-b73857586e85" />
+
 
 
 
 
 <p align="center">
-  <sup><sub> "Don't be excited about tomorrow, because there will be no tomorrow. : ) "
+  <sup><sub> "I'm closer than you think."
 </sub></sup>
+
+<img width="1280" height="720" alt="knockckcckckck" src="https://github.com/user-attachments/assets/9b59d2b0-21f9-46db-b4c7-c2a64a1a2a50" />
+
+
 
 
  </sub></sup>
  <div align="center"> 
   
-   [ata](https://xoxo1ia.atabook.org/) 🎨 [carrd](https://knockknxck.carrd.co/)  🌀  [tiktok](https://www.tiktok.com/@lia.nammr)  
+   [ata](https://xoxo1ia.atabook.org/) 🥖 [carrd](https://knockknxck.carrd.co/)  🪓  [tiktok](https://www.tiktok.com/@lia.nammr)  
 
 
 <p align="center">
