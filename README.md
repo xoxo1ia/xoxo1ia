@@ -11,7 +11,7 @@ helen / maddox ︵‿ 15 yrs. old ︵‿ infp
 
 </sub></sup>
    . <p align="center">
-   ![Github Views](https://views.igorkowalczyk.dev/api/badge/xoxo1ia?label=ᵥᵢcₜᵢₘₛ&labelColor=000&color=FFFFFF)
+   ![Github Views](https://views.igorkowalczyk.dev/api/badge/xoxo1ia?label=...&labelColor=000&color=FFFFFF)
  
 
  <div align="center">  
