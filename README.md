@@ -29,7 +29,6 @@ helen / maddox ︵‿ 15 yrs. old ︵‿ infp
 <img width="1280" height="720" alt="knockckcckckck" src="https://github.com/user-attachments/assets/9b59d2b0-21f9-46db-b4c7-c2a64a1a2a50" />
 
 <p align="center">
- 
 <img width="150" height="20" alt="z14" src="https://github.com/user-attachments/assets/cccd456d-134f-4599-a66f-3eda9995bee5" />
 
 
